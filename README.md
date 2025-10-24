@@ -1,4 +1,4 @@
-Human Rights Incentives Initiative
+Human Right Incentives Initiative
 
 Project type: Social impact / Youth empowerment
 Location: Addis Ababa, Ethiopia
